@@ -3,6 +3,7 @@ profile is under construction
 c+h are okay! feel free to do so ^^
 
 im mostly offtabbed AND laggy so whisper me when u want to talk to me 
+
 i apologize in advance if i dont respond, it might be because i switched to phone/pc or your message got flooded by a friend
 
 <!--
