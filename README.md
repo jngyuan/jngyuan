@@ -1,6 +1,6 @@
 profile is under construction
 
-c+h are okay! feel free to do so ^^
+c+h heavily encouraged! feel free to do so ^^
 
 im mostly offtabbed AND laggy so whisper me when u want to talk to me 
 
